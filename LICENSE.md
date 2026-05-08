@@ -1,4 +1,4 @@
-
+new Scripts for survive lava for brainrots is the best survive lava for brainrots Script, featuring instant win and no clip. Safe and powerful for
 
 
 
